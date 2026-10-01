@@ -1,4 +1,4 @@
 # Youseehowthislooksright
 I'm Chris Hansen
-woaaah
-youseehowthislooksright
+woaah
+and I'm with Dateline NBC
